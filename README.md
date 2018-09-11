@@ -1,0 +1,4 @@
+# Himecoin
+# Himecoin
+# Himecoin
+# Himecoin
